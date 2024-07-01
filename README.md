@@ -151,7 +151,7 @@ Free to use!
 ![paranoid](https://64.media.tumblr.com/41dfaa729a9ae0f3f13ec75e982daa2e/ad47f1426eaab134-1a/s250x400/063d1454c74f42be94d224f13806f0b8257bf4c1.gifv)
 ![buzzfeed](https://64.media.tumblr.com/dbe6c58d9ff8bc5760fc0a211932857c/ad47f1426eaab134-68/s100x200/e87f016c7770a88847efa6c6c81b81bffe6a70e4.pnj)
 ![Ed fma](https://64.media.tumblr.com/c509974556483f93a701d0e6bbbf0f20/ad47f1426eaab134-0d/s100x200/47b16c8bbb95e9e4ce9a93a302e9c17f27d95c5c.gifv)
-![bloody hand](https://64.media.tumblr.com/f51b41b3e0fc22964b93486feb2813f6/ad47f1426eaab134-14/s100x200/6fc4d065472e3272e09fc4eb728c749774bd7081.pnj)
+![bloody hand print](https://64.media.tumblr.com/f51b41b3e0fc22964b93486feb2813f6/ad47f1426eaab134-14/s100x200/6fc4d065472e3272e09fc4eb728c749774bd7081.pnj)
 ![glowing rose](https://64.media.tumblr.com/6319a9388dd245bf04fbcd1557e8c78d/ad47f1426eaab134-8c/s100x200/fc0fbca3d6d524d03426d6c2a36ad7acbd4e2746.pnj)
 ![breaking my heart](https://64.media.tumblr.com/e8b1286e5470acc7c4967f0228d8159d/ad47f1426eaab134-bc/s100x200/5b2b293c11844e9f0228e5078c3950f31d422581.pnj)
 ![incorrect pass](https://64.media.tumblr.com/7a7e6b916040fc9ecd954c8d3f556e23/ad47f1426eaab134-4f/s100x200/aa2b2b30d6757c19a63fc345acd75f3492114ebc.pnj)
@@ -170,9 +170,23 @@ Free to use!
 ![watermellon](https://64.media.tumblr.com/e2478c5154e6e756e6522864e2d8608e/01cd7aee8bc9d3ce-56/s100x200/1e532c4adc404e2ae12e81b09e773097d2fedce1.gifv)
 ![warning](https://64.media.tumblr.com/c02d96c4eb94311fd7f5288f0923e494/90c87e79a3a90476-cb/s100x200/f28628c9581489a6c4a65f36ab33de6217b8c495.gifv)
 ![spinny](https://64.media.tumblr.com/43a344a41489cf6dd75db316bc9cb759/90c87e79a3a90476-27/s100x200/e91e4f9f2a322ea7ec5f97cc8e5176fb53944631.gifv)
-
-
-
+![run for your life!](https://64.media.tumblr.com/3384b467706a2236357a05616cb29b9b/22b711b2a5147ae4-1b/s100x200/2a5d52f5da4888a79c419b5eac83d040392a7edb.pnj)
+![easily distracted](https://64.media.tumblr.com/f094f0b7749b80f4b5cb95293684db9f/22b711b2a5147ae4-d4/s100x200/e962ef74591bf90d7d5236a51bed5fa6aaef98e7.pnj)
+![emo](https://64.media.tumblr.com/07797c4a9750691eb74d84f45fc087ff/422b753e34e8578a-c6/s250x400/0325996871ad0f820201448ce0965e8760a99c21.pnj)
+![mushroom](https://64.media.tumblr.com/8a33aa54bbd73ffa9e9832f71b91bc5a/0849fa6899c3a334-30/s100x200/94a3a758efd542a3072cbf77c8032c7999630860.gifv)
+![bloody hand](https://64.media.tumblr.com/37fb88a489b029ebadcce3baa19da34c/0849fa6899c3a334-89/s100x200/4e8623471ab52f1a279024ab24a84566890fa3db.pnj)
+![postal end](https://64.media.tumblr.com/77debfec6ea66e62ae0eec6b31de9862/0f583747440e28bd-03/s100x200/04517ad8b4f44c140abd4270b52fb21d6c97cfcf.pnj)
+![lemon demon](https://64.media.tumblr.com/054d04977d8f3a038c3eddf5b1d926f3/0f583747440e28bd-44/s100x200/69f66100cc4aa57c41429c4372dfdb2fbe176ab7.pnj)
+![too normal](https://64.media.tumblr.com/a4e5faa6fd0337170eeff55f1ad17103/0f583747440e28bd-88/s100x200/78249263614381c4518dd1c6733d1107e44dec89.gifv)
+![allergic 2 ppl](https://64.media.tumblr.com/847dca39f6359a099125693a9371ce24/0f583747440e28bd-8f/s100x200/02e2d40d7d253f353adf184cde1859778d20d050.gifv)
+![too funny 2 load](https://64.media.tumblr.com/d336606f1f5ab87545182f182711e788/0f583747440e28bd-68/s100x200/8693de99f1e04d3cfccf46a8d6b1cdf13bc6f256.jpg)
+![always angry](https://64.media.tumblr.com/6ac4b1332c4b7ce6dfc270149aa9d4df/0f583747440e28bd-a8/s100x200/ce4cfd423a94689eede8d6b2d094ceb6bc442d5e.jpg)
+![like a faggot](https://64.media.tumblr.com/66a14fdb3c878e861774bd771d33c441/0f583747440e28bd-44/s100x200/8c7412ad469384d323a4dcbe7d6ff9831ed18f9c.gifv)
+![beat lead pipe](https://64.media.tumblr.com/93c13ac605079661f7809a0ad9d9d49c/0f583747440e28bd-55/s100x200/db41d4ed2a3a58fd530f9d3bdd611f6470ee5669.pnj)
+![piracy good](https://64.media.tumblr.com/ff11f694bcfb1f1b02ec548fdc34f008/0f583747440e28bd-41/s100x200/58e82076a7c5b3946218018f64c1c6815a02668f.gifv)
+![predux](https://64.media.tumblr.com/0c2c504e3726516ec87b5262ac4a2e35/0f583747440e28bd-a5/s100x200/5699000734cd9cbb7f4172c11b90275aed043e7a.pnj)
+![faith:tut](https://64.media.tumblr.com/9a5bea4484d3c1d15d35be8156e6e865/0f583747440e28bd-8e/s100x200/3233f87b7da76450fe13d047b0d1b3721f366fde.pnj)
+![soul eater](https://external-media.spacehey.net/media/spFv2ZJjWM1lL6TCXV5N1v7LJGn9H037P03sLwAHW-BA=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bd26bde7-1297-4f6f-a449-2b4ab418826b/d1jm9ml-36550b2f-8e52-4dae-9b5a-9fd50b87451e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JkMjZiZGU3LTEyOTctNGY2Zi1hNDQ5LTJiNGFiNDE4ODI2YlwvZDFqbTltbC0zNjU1MGIyZi04ZTUyLTRkYWUtOWI1YS05ZmQ1MGI4NzQ1MWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.q6GRapcEEdNU6mXErf_BAfhPP6T7_oCB8uT3TxUKktQ)
 
 
 
