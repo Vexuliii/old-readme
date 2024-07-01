@@ -133,11 +133,24 @@ Free to use!
 ![raspberries](https://64.media.tumblr.com/704fbf0d7e81818dce19759da4764210/01cd7aee8bc9d3ce-b4/s100x200/acea45c360ac3504ac9eb72abf385c064ff9ddc1.pnj)
 ![strawberries](https://64.media.tumblr.com/3159ebd8568db28186b98d4a5569ccaf/01cd7aee8bc9d3ce-74/s100x200/76cb876c6f960b9236d16cd0266ff5ea72e9e08c.pnj)
 ![weezer red](https://64.media.tumblr.com/eb729fa5fc872aec9b57ada5ef87f9e0/df303fd8b2314751-ce/s100x200/a73044b142ee2b5f3872b51aa9b044211b6a01af.pnj)
-![you died!]
-
-
-
-
+![you died!](https://64.media.tumblr.com/54f2df445c3946634cf6a73dc182b896/e33f34dc8b4bdcd4-e0/s100x200/8ddedd112aff50cb8f5e0d4aa5a990c9eb4c9768.pnj)
+![mooshroom spin](https://64.media.tumblr.com/e5106752141a5ac2865d4ff5d7cfb5e0/e33f34dc8b4bdcd4-a2/s100x200/6222a62bd270df1c7e68e935bca3fea484e4f3cf.gifv)
+![mfdoom](https://64.media.tumblr.com/b190b5eb2bcc94541afa82fbe7a91f93/819494ac03160901-78/s100x200/b8e5b4c71951b5dbe9ffaa89fe9d010ed2491eb1.pnj)
+![mfdoom2](https://64.media.tumblr.com/7abbe4b83df23e954f32f561cd7072dc/819494ac03160901-60/s100x200/1be61dfb9c352ebd680029751805ffc3adbd272a.pnj)
+![cherries2](https://64.media.tumblr.com/fdcff31aa5e0a4f0f574befeda5b7f27/204d1e81dd52f277-c7/s100x200/a5af8734c835354d6199a88e6abb4c23cf1807b6.pnj)
+![i love bugs](https://64.media.tumblr.com/cefc9b385c65a695cc95c3aa6cd9261f/aa233c22e409450d-c2/s100x200/23ec7101f05292f005373574ee263c3eebd32d7d.gifv)
+![book simon](https://64.media.tumblr.com/38073ae8e84029b2ce2048510c88f61b/07b12eebed19146c-d0/s100x200/ac3a3a3e124e116829230eb73cfe69076f2169fd.pnj)
+![silly](https://64.media.tumblr.com/f170b2045288de365f00db0b2bef9fed/363752070e93a7f9-79/s100x200/a4fe604c05ee4e60026ee902cf74c1da59cb07f8.pnj)
+![cowbot bebop](https://64.media.tumblr.com/8a89a33f4ab68334325a377be899e23f/268d89e57bd8925f-97/s100x200/c241c12a3cea92d02b7fc133d6c382acec3c6549.gifv)
+![cowboy bebop2](https://64.media.tumblr.com/04cff198b05bbd113e53d5be06611dfa/268d89e57bd8925f-f0/s100x200/2c0d380bef06d7d72e27b704d4cfa5325d150d1e.gifv)
+![kitkat](https://64.media.tumblr.com/73cb6d7a54f3279f92465f765758ae4f/0d80458eaa435cbd-95/s250x400/acb5845c724210c7c1c0fde3be4fffee3c64d6ee.pnj)
+![survive 2016](https://camo.githubusercontent.com/20b492f18991e6bcc1c45de15271930b55c513c41be21f14a9fdaef148d8ac9b/68747470733a2f2f64726976652e676f6f676c652e636f6d2f75633f69643d31336630374a4e4f656c415a6c72746a49385f6363503062496b4e323570464937)
+![book of life](https://camo.githubusercontent.com/92d8b4d223de0d28c704853f78aee743282f385a35655667b4c66d64ad3c48f3/68747470733a2f2f64726976652e676f6f676c652e636f6d2f75633f69643d3148397a4f77674d31776a6c7562304239666f4e3046654d6667314f4b616d4a52)
+![i love you](https://64.media.tumblr.com/69d106e82371acde90bd14eda0c2ba97/ad47f1426eaab134-f9/s100x200/6f4402cfb0fc2d83ad77638829b3100351f21a3d.gifv)
+![red roses](https://64.media.tumblr.com/132ddfdca7aa0fe6aa320a70444c12c7/ad47f1426eaab134-84/s100x200/1bf00b9a39e6c48c12b4a3c72ff2e1fdfc6fa1de.pnj)
+![paranoid](https://64.media.tumblr.com/41dfaa729a9ae0f3f13ec75e982daa2e/ad47f1426eaab134-1a/s250x400/063d1454c74f42be94d224f13806f0b8257bf4c1.gifv)
+![buzzfeed](https://64.media.tumblr.com/dbe6c58d9ff8bc5760fc0a211932857c/ad47f1426eaab134-68/s100x200/e87f016c7770a88847efa6c6c81b81bffe6a70e4.pnj)
+![Ed fma](https://64.media.tumblr.com/c509974556483f93a701d0e6bbbf0f20/ad47f1426eaab134-0d/s100x200/47b16c8bbb95e9e4ce9a93a302e9c17f27d95c5c.gifv)
 
 
 
