@@ -1,6 +1,9 @@
+
 <div align="center">
   <img src="[](https://64.media.tumblr.com/a97856e38a3b8d8a06d99b10f8305770/db3003639f40a3b6-e6/s400x600/ec7ec4c76bef4ec37efaf79a7b8bc65391f6a951.pnj)"
 </div>
+  
+![](https://komarev.com/ghpvc/?username=vexuliii&color=c43729&amp;label=View+Count+Haai+:33)
 
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 <p align="center">
