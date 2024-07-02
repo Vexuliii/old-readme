@@ -331,7 +331,6 @@ Now here are all the stamps I didn't make
 ![hozier](https://64.media.tumblr.com/3e278226ca9f6fb984dac2ae7fe8d320/f943c255bc176c80-10/s100x200/2fbd1e38af8b23ccc7226408a987f17f00dc0750.pnj)
 ![flower](https://64.media.tumblr.com/7a25fad8ed13dcc78ec1c66dfd454ce6/9d275445a053ac06-f5/s100x200/f62c60f7a634b66dad1a175f40e7c9c84b43ad67.gifv)
 ![fish](https://64.media.tumblr.com/1f1382b2f4d5607777c535d28e2a5120/a2b9a9b92798b874-e2/s100x200/5fc31001467cdecd850c47dd3ff20dafb0237b5a.gifv)
-![clownfish](https://64.media.tumblr.com/89cf3a85fdaac596eaea8eb3466a2ead/a2b9a9b92798b874-71/s250x400/0389d9414e52d70803fdcaf533429b34bd5de9da.pnj)
 ![sunset](https://64.media.tumblr.com/3d9258005b6d5cdb8d6d242357b7d5e0/be32b0cf301b5e78-38/s100x200/7a931f56347460cf6923280c9b25578a260b4a17.gifv)
 ![sunset2](https://64.media.tumblr.com/b7875582a8ff040c204c4ccd8fdcd2df/be32b0cf301b5e78-f8/s100x200/e19f2722fe71909f23d20a9ab17e0035bcea9531.gifv)
 ![sunset3](https://64.media.tumblr.com/aa4dcf71a764f3402f999f6d79b663c1/be32b0cf301b5e78-70/s100x200/ccb545324e5f54014059285bad7d87eb278dfa95.gifv)
@@ -373,6 +372,7 @@ Now here are all the stamps I didn't make
 ![stampy](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0797ec45-b257-469a-b345-4f2baacb34c0/d7u22vf-2714b2c0-a3d5-42a1-90e3-dff510dc2580.png/v1/fill/w_101,h_57,q_80,strp/stampy_stamp_by_silvergriffinflare_d7u22vf-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTciLCJwYXRoIjoiXC9mXC8wNzk3ZWM0NS1iMjU3LTQ2OWEtYjM0NS00ZjJiYWFjYjM0YzBcL2Q3dTIydmYtMjcxNGIyYzAtYTNkNS00MmExLTkwZTMtZGZmNTEwZGMyNTgwLnBuZyIsIndpZHRoIjoiPD0xMDEifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.wy-X0bScOlL5_nlS4lgFAZcmn6DVC7_XM-Mk-ngDuqs)
 ![homer](https://delovely.neocities.org/scrapbook/stickers/homer.gif)
  <img src="https://64.media.tumblr.com/2e3be92345efb5d02c4ed38b99fad0a4/2ef96fe7799cb61a-1f/s400x600/3c983ee99d53346388c48b103e25c1492f41c73e.pnj" alt="fish" height=60px>
+  <img src="https://64.media.tumblr.com/89cf3a85fdaac596eaea8eb3466a2ead/a2b9a9b92798b874-71/s250x400/0389d9414e52d70803fdcaf533429b34bd5de9da.pnj" alt="clownfish" height=60px>
   
 
 
