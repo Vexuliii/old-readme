@@ -358,6 +358,20 @@ Now here are all the stamps I didn't make
 ![bambi](https://64.media.tumblr.com/702f10acce99b715428e7ab14f64317a/ffd5a59526bd5d7e-31/s100x200/45d8ff27049940867b0b93aadb2b0ec88b2cb87a.gifv)
 ![moomins](https://64.media.tumblr.com/0aaf2bcdfc79572aa85c60d37ca8a4e7/8a52b2cab4f6f81a-05/s100x200/40b8f6196f5a8003ce66363ac4dc85c99621f430.gifv)
 ![weird noises](https://64.media.tumblr.com/f4265c2dcdafe143a14c566a68aef4da/f1f121adbcc609a2-b9/s100x200/26d6097f6a6658a4c529d375ed6d8688d8118106.pnj)
+![radiohead](https://64.media.tumblr.com/7d62f0e007a674d45d0aecce8c747cc9/f1f121adbcc609a2-5f/s100x200/d93de2e15e1af686acf6d70fbe0eaae29baf3fc4.pnj)
+![cat lazer](https://64.media.tumblr.com/5bef5dd7cdef191ab30fceb1281b10d8/058db3e0116d2499-17/s100x200/bc8df8bdb6a5867c2dbaa4c892405427915fc104.gifv)
+![moomin](https://64.media.tumblr.com/2cebb83311e6d790607c49db33ae2ac5/058db3e0116d2499-e2/s100x200/a00c69b3112aa8892013a77c69780eb67f079d51.pnj)
+![fox](https://64.media.tumblr.com/c67c70cdcab7bf9925ce28769feb5f24/8c49db604b0f3002-a4/s100x200/2e82471bab3f9d9a8b029c7b3e30cf4594fb5836.gifv)
+![redpanda](https://64.media.tumblr.com/0fc4817bf3b68ad9912fa4b5d8479fad/8c49db604b0f3002-31/s100x200/26a0026d25d8fa3b22398208dbc86c38b0c6e862.gifv)
+![happy when it rains](https://y2k.neocities.org/stamps2/908b5449853e202319568caaaa9ff912-db1bq9a.png)
+![cat](https://y2k.neocities.org/stamps2/cats_louis_wayne_1_stamp_by_chuchucolate-d6duath.png)
+![tiger](https://y2k.neocities.org/stamps2/tiger_stamp_001__alt_colors__by_beepudding-dbzdfbs.png)
+![RAD luigi](https://66.media.tumblr.com/01270133cdc5a2984590d169b72cc385/tumblr_ptw8mykHFw1xwjivko1_100.png)
+![80's](https://66.media.tumblr.com/29887afc534428204c1d48812d59f538/tumblr_ptf347oNTd1wclo4ko2_100.png)
+![HIC](https://64.media.tumblr.com/586dfb127d5a80bb5783a779cebac38c/d91c424b6cde82cb-65/s100x200/dacb9910842ebbc6e3481de01e31096feedbcbe8.pnj)
+![i forget](https://64.media.tumblr.com/01ca647f9bab31585e0db0777339c81b/a0e8fd5be8d594db-23/s100x200/de34f5ab606e56d102203d50926fc95c7ace4c28.pnj)
+![stampy](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0797ec45-b257-469a-b345-4f2baacb34c0/d7u22vf-2714b2c0-a3d5-42a1-90e3-dff510dc2580.png/v1/fill/w_101,h_57,q_80,strp/stampy_stamp_by_silvergriffinflare_d7u22vf-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTciLCJwYXRoIjoiXC9mXC8wNzk3ZWM0NS1iMjU3LTQ2OWEtYjM0NS00ZjJiYWFjYjM0YzBcL2Q3dTIydmYtMjcxNGIyYzAtYTNkNS00MmExLTkwZTMtZGZmNTEwZGMyNTgwLnBuZyIsIndpZHRoIjoiPD0xMDEifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.wy-X0bScOlL5_nlS4lgFAZcmn6DVC7_XM-Mk-ngDuqs)
+![homer](https://delovely.neocities.org/scrapbook/stickers/homer.gif)
  <img src="https://64.media.tumblr.com/2e3be92345efb5d02c4ed38b99fad0a4/2ef96fe7799cb61a-1f/s400x600/3c983ee99d53346388c48b103e25c1492f41c73e.pnj" alt="fish" height=60px>
   
 
