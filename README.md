@@ -1,9 +1,10 @@
-
+<!-- feel free to use this code btw, idm at all LOL. Wish you luck if you're trying to use it though...-->
 <div align="center">
   <img src="[](https://64.media.tumblr.com/a97856e38a3b8d8a06d99b10f8305770/db3003639f40a3b6-e6/s400x600/ec7ec4c76bef4ec37efaf79a7b8bc65391f6a951.pnj)"
 </div>
   
 ![](https://komarev.com/ghpvc/?username=vexuliii&color=de1400&amp;label=View+Count+Haai+:33)
+<!-- (above) this is the view count! made by antonkomarev on github-->
 
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 <p align="center">
@@ -128,6 +129,8 @@ Before going into all the stuff, check out the stamps I've made!!
 Free to use!
 
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+
+Now here are all the stamps I didn't make
 
 ![cherries](https://64.media.tumblr.com/987e4899d43c19ac50a87ecff75efb5b/01cd7aee8bc9d3ce-d2/s100x200/ed73ce6e08276d17ffce654265aac94d5bf685b6.pnj)
 ![raspberries](https://64.media.tumblr.com/704fbf0d7e81818dce19759da4764210/01cd7aee8bc9d3ce-b4/s100x200/acea45c360ac3504ac9eb72abf385c064ff9ddc1.pnj)
@@ -314,7 +317,7 @@ Free to use!
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 <!--- ORANGE STAMPS --->
 
-  
+  <!-- EDIT SCALE DOWN "goldfish" TO 50PX-->
 
 ![macncheese](https://64.media.tumblr.com/b0c1fd85ad33e2d67d1edc4f2cfa48a2/01cd7aee8bc9d3ce-4a/s100x200/eeca54094cccdfa7a80b7993bf5d410a09132536.pnj)
 ![waffle](https://64.media.tumblr.com/007834acf29e3bd81aab111c805e0302/01cd7aee8bc9d3ce-96/s100x200/8605957a2e9e7714fa5ef82a6ed09f8da20a5599.pnj)
