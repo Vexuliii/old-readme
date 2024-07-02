@@ -31,6 +31,8 @@
 <summary><mark>Click to view everything!
 might take a minute to load in LOL</mark></summary>
 Currently 1,189 total! NOT DONE
+
+also the 1,189 isnt all added up thats how many are on my patreon rn... HJAJAS
   
 ![river 2 sea](https://64.media.tumblr.com/7b2d79090dde120f0df5316ba6e0061a/b19b8466f96477fc-4e/s100x200/649395e1418b013f9ccdf37934c22a36f7fd9f7b.webp)
 ![palestine](https://64.media.tumblr.com/805c9852166cc7b3bf9d6da788bcbb43/b19b8466f96477fc-bc/s100x200/43dbb6b5c4ab950217732ba95ba685b73971d262.pnj)
