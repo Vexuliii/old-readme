@@ -374,6 +374,25 @@ Now here are all the stamps I didn't make
  <img src="https://64.media.tumblr.com/2e3be92345efb5d02c4ed38b99fad0a4/2ef96fe7799cb61a-1f/s400x600/3c983ee99d53346388c48b103e25c1492f41c73e.pnj" alt="fish" height=60px>
   <img src="https://64.media.tumblr.com/89cf3a85fdaac596eaea8eb3466a2ead/a2b9a9b92798b874-71/s250x400/0389d9414e52d70803fdcaf533429b34bd5de9da.pnj" alt="clownfish" height=60px>
   
+  <!--ORANGE BLINKIES-->
+![i<3carrots](https://64.media.tumblr.com/ef65652ba0ddb3c131cdddfe4b10969d/3a892baec4c21219-ae/s250x400/4d3907ed22f1f3982f3eeb27c830c1c7b25de745.pnj)
+![twix](https://64.media.tumblr.com/172e9ff88f479827b277bf5483952118/3a892baec4c21219-1c/s250x400/6ad0c52fa84a2d9bad2a1559dff60635eae83fb9.gifv)
+![oranges](https://64.media.tumblr.com/d5120c858c61b1a7531dbdfdd2ea1fc2/0809813bb250313d-7d/s250x400/fe9998727b7476fbc1e852c235abab0fb086af7b.gifv)
+![wobbly orange](https://64.media.tumblr.com/a5da80ff1d0f1497ec4e94408eb3ac55/e1dd9ee6069f3893-0e/s100x200/ade290d2db1c2d7000c5f8f75fdfeecf287bd880.gifv)
+![sunset hugging](https://64.media.tumblr.com/571e4496a8fc347c9ff2a79c8650133d/abaa7711ad9aa5cd-97/s250x400/8d9da84c905cf17a1d7781b01ee1e7f66b88aa53.gifv)
+![imagination blinkie](https://64.media.tumblr.com/ecb77251df9f1ef55e0c25367b200951/49f2343760566e61-dc/s250x400/1417b84318a12293a3285ff9fe7088e02b90a862.gifv)
+![i<3apples](https://64.media.tumblr.com/84dc5e8c0214b044336f028f5b6b9d29/a8690e23767b02e5-21/s250x400/4ccb0ac1b52eadba73ebb6654b0f12f100092835.gifv)
+
+
+
+
+
+
+
+
+
+
+
 
 
 Wow! you made it to the end!!! good job :3 COUGHS 
