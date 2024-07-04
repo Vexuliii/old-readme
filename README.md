@@ -12,7 +12,7 @@
     <p align="center">
   so please check out our carrd/patreon for information!
       <p align="center">
-  (also leave something in our atabook!! We love looking at messages >_<)
+  (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
 
 <!--dont worry about the images its fine everythings fine-->
     
