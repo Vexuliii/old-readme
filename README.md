@@ -13,7 +13,8 @@
   so please check out our carrd/patreon for information!
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
-
+ <p align="center">
+NOTE: ATABOOK IS DOWN??? :(( LEAVE A NOTE IN OUR STRAWPAGE INSTEAD!! Or a drawing :33 
 <!--dont worry about the images its fine everythings fine-->
     
 <div align="center">
