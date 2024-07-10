@@ -458,6 +458,7 @@ Now here are all the stamps I didn't make
 ![bee](https://cyber.dabamos.de/88x31/paceka-88x31.gif)
 ![gun explosion](https://plasticdino.neocities.org/buttons/avgn.gif)
 ![hell on web](https://plasticdino.neocities.org/buttons/hellontheweb.gif)
+
 ![jupiter 1](https://64.media.tumblr.com/9dd1a00075f8b0f68bd91eeedb719226/0e670483a7d370a3-4b/s250x400/5b3c03cad6c03ab435915277d929f39bc19011c4.gifv)
 ![saturn](https://64.media.tumblr.com/389786f1e1b36d847487a54dde81ae4b/0e670483a7d370a3-66/s400x600/5b3192eb224620f85d93c0ba1e5e55922013aa40.gifv)
 ![jupiter 2](https://64.media.tumblr.com/15fb4b02392711ca7e629197c898bf8a/0e670483a7d370a3-cc/s75x75_c1/b80e47012426ce5886373ceec35e36f2ce2191b0.gifv)
