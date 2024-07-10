@@ -1,3 +1,18 @@
+import { Cursor } from 'react-creative-cursor';
+import 'react-creative-cursor/dist/styles.css';
+
+const index = () => {
+  return (
+    <>
+      <Cursor isGelly={true} />
+      <div data-cursor-background-image="https://reactjs.org/logo-og.png" data-cursor-size="200px">
+        <h1 id="stick-title">React.js</h1>
+      </div>
+    </>
+  );
+};
+
+
 <!-- feel free to use this code btw, idm at all LOL. Wish you luck if you're trying to use it though...-->
 <div align="center">
   <img src="[](https://64.media.tumblr.com/a97856e38a3b8d8a06d99b10f8305770/db3003639f40a3b6-e6/s400x600/ec7ec4c76bef4ec37efaf79a7b8bc65391f6a951.pnj)"
@@ -465,7 +480,22 @@ Now here are all the stamps I didn't make
 
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 
-
+![sharp edges](https://adriansblinkiecollection.neocities.org/stamps/h4.gif)
+![epic win](https://adriansblinkiecollection.neocities.org/stamps/h5.gif)
+![alien abduction](https://adriansblinkiecollection.neocities.org/stamps/h12.png)
+![biohazard sanctuary](https://adriansblinkiecollection.neocities.org/stamps/h7.jpg)
+![love drawing](https://adriansblinkiecollection.neocities.org/stamps/h15.gif)
+![bio hazard](https://adriansblinkiecollection.neocities.org/stamps/h16.png)
+![lemons](https://adriansblinkiecollection.neocities.org/stamps/h17.png)
+![nuclear symbol](https://adriansblinkiecollection.neocities.org/stamps/d17.png)
+![lemon demon](https://adriansblinkiecollection.neocities.org/stamps/d16.jpeg)
+![collecting blinkies](https://adriansblinkiecollection.neocities.org/stamps/f4.png)
+![barbed wire diet](https://y2k.neocities.org/stamps/warning____barbed_wire_by_big_argonian.jpg)
+![fucking thing](https://y2k.neocities.org/stamps/tumblr_pgi830li6C1xzybrpo2_100.png)
+![eat my ass](https://y2k.neocities.org/stamps2/3423%20(5).png)
+![caution im weird](https://y2k.neocities.org/stamps2/tumblr_pofep92i1H1y8ua8do8_100.png)
+![fallout](https://66.media.tumblr.com/cabbde774db5b50f4f6d4f0abf1425b0/tumblr_ptfajnMz0A1xwjivko5_250.png)
+!
 
 
 
