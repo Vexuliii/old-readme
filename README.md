@@ -440,8 +440,20 @@ Now here are all the stamps I didn't make
 ![garfield 2](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield002.gif)
 ![garfield 3](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield003.gif)
 ![garfield 4](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield005.gif)
+![garfield 5](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield007.gif)
+![garfield 6](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield006.gif)
 ![hate mondays](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield009.gif)
-
+![contain escape](https://koinuko.pink/mygraphics/blinkies/blinkie_containmyself.gif)
+![new best friend?](https://66.media.tumblr.com/65606a3c0047acae3bcb6a4ee2fca8c1/tumblr_prybmnM3v41vcjknjo1_250.gif)
+![garfield button](https://www.webcreationsbyjumpy.com/comics/comics_blinkies/blinkies/garfield/garfield004.gif)
+![gordon hl](https://64.media.tumblr.com/72b9d7c5070890b3605a60d3d5be1d74/e8cce3206ad32e27-9e/s100x200/318b1c967e2a6e19c5547126c50573bea7930ea7.gifv)
+![media builder](https://64.media.tumblr.com/3405a4bf943da744a27ae6b10da7a1c8/e8cce3206ad32e27-25/s100x200/f9cb4a8cd96f981377af3cb09bc18014a7878f33.gifv)
+![anime 50](https://cyber.dabamos.de/88x31/anime50.gif)
+![acid fonts](https://cyber.dabamos.de/88x31/bns_acidfont.gif)
+![chat online](https://cyber.dabamos.de/88x31/chat.gif)
+![flaming text](https://cyber.dabamos.de/88x31/flamingtext.gif)
+![free wallpaper](https://cyber.dabamos.de/88x31/freewallpaper.gif)
+![happy halloween](https://cyber.dabamos.de/88x31/halloween1.gif)
 
 
 
