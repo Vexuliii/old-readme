@@ -1,16 +1,3 @@
-import { Cursor } from 'react-creative-cursor';
-import 'react-creative-cursor/dist/styles.css';
-
-const index = () => {
-  return (
-    <>
-      <Cursor isGelly={true} />
-      <div data-cursor-background-image="https://reactjs.org/logo-og.png" data-cursor-size="200px">
-        <h1 id="stick-title">React.js</h1>
-      </div>
-    </>
-  );
-};
 
 
 <!-- feel free to use this code btw, idm at all LOL. Wish you luck if you're trying to use it though...-->
