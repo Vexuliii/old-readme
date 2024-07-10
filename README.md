@@ -372,6 +372,10 @@ Now here are all the stamps I didn't make
 ![i forget](https://64.media.tumblr.com/01ca647f9bab31585e0db0777339c81b/a0e8fd5be8d594db-23/s100x200/de34f5ab606e56d102203d50926fc95c7ace4c28.pnj)
 ![stampy](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0797ec45-b257-469a-b345-4f2baacb34c0/d7u22vf-2714b2c0-a3d5-42a1-90e3-dff510dc2580.png/v1/fill/w_101,h_57,q_80,strp/stampy_stamp_by_silvergriffinflare_d7u22vf-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTciLCJwYXRoIjoiXC9mXC8wNzk3ZWM0NS1iMjU3LTQ2OWEtYjM0NS00ZjJiYWFjYjM0YzBcL2Q3dTIydmYtMjcxNGIyYzAtYTNkNS00MmExLTkwZTMtZGZmNTEwZGMyNTgwLnBuZyIsIndpZHRoIjoiPD0xMDEifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.wy-X0bScOlL5_nlS4lgFAZcmn6DVC7_XM-Mk-ngDuqs)
 ![homer](https://delovely.neocities.org/scrapbook/stickers/homer.gif)
+![autum](https://graphic.neocities.org/71427a3dd540f15dbd769d4e3742f34a-d1sk9xh.gif)
+![mlp honesty](https://64.media.tumblr.com/c8067fb6bafc6ebcb5e1ba21e384ab2b/65ab56dd16d6c002-75/s100x200/5e11778d5f6a7ec78ab5367ecc545866cec2ec47.gifv)
+![sunset](https://bloominglantanas.carrd.co/assets/images/gallery09/5d6fe611.png?v=8e241c6f)
+
  <img src="https://64.media.tumblr.com/2e3be92345efb5d02c4ed38b99fad0a4/2ef96fe7799cb61a-1f/s400x600/3c983ee99d53346388c48b103e25c1492f41c73e.pnj" alt="fish" height=60px>
   <img src="https://64.media.tumblr.com/89cf3a85fdaac596eaea8eb3466a2ead/a2b9a9b92798b874-71/s250x400/0389d9414e52d70803fdcaf533429b34bd5de9da.pnj" alt="clownfish" height=60px>
   
@@ -383,6 +387,19 @@ Now here are all the stamps I didn't make
 ![sunset hugging](https://64.media.tumblr.com/571e4496a8fc347c9ff2a79c8650133d/abaa7711ad9aa5cd-97/s250x400/8d9da84c905cf17a1d7781b01ee1e7f66b88aa53.gifv)
 ![imagination blinkie](https://64.media.tumblr.com/ecb77251df9f1ef55e0c25367b200951/49f2343760566e61-dc/s250x400/1417b84318a12293a3285ff9fe7088e02b90a862.gifv)
 ![i<3apples](https://64.media.tumblr.com/84dc5e8c0214b044336f028f5b6b9d29/a8690e23767b02e5-21/s250x400/4ccb0ac1b52eadba73ebb6654b0f12f100092835.gifv)
+![the cure](https://64.media.tumblr.com/1fbe937b20d5b140fc9542cb2616214a/8657239874b12d70-ff/s250x400/af42f022bce772f22e926d5e204bb6f8b2d2ed6a.gifv)
+![i cant dance](https://64.media.tumblr.com/3a954a08331ecd2b5797025d7a39c93c/8657239874b12d70-ed/s250x400/4d70b93f4cfc4df63c1fdc5e9639323bb5f832e5.gifv)
+![Then you wake up](https://64.media.tumblr.com/c05e60640c29fe806c84e25839409a97/8657239874b12d70-b8/s250x400/506c89478ed567f1c96b117132002301b44c49d0.gifv)
+![half alive](https://64.media.tumblr.com/4c952c9bbbde38950d1a472c3d246fdf/8657239874b12d70-e9/s250x400/69dd1b6f0abb001c2a53c027eb339b7b3f7fca8f.gifv)
+![velma](https://64.media.tumblr.com/f0bf93e63248ac0858b7046426528c60/8657239874b12d70-4c/s250x400/bdaf59185a9295cc509fb5c1b569fffed450e8fa.gifv)
+![happy halloween](https://64.media.tumblr.com/94fb95043dbf4b02f67c8a8e8a16f7dc/8657239874b12d70-16/s250x400/acd022803e0a05dbec6a7841c36a124ceeaad910.gifv)
+![crayon orange](https://64.media.tumblr.com/3b65796352fc22292fed2171d61ad78c/8657239874b12d70-21/s250x400/2df2cd60f03b3d82a464b9c62f7822c68e5cb989.gifv)
+![mitski](https://64.media.tumblr.com/5924851473b12519945c631e14268d23/b08ff72694d6ce59-55/s250x400/d853bb4cb5750b452f9e847a49b73cd254debd0a.gifv)
+![legalize bombs aj](https://64.media.tumblr.com/69a76448c9dab6a0359b8384e8a031e4/5f6129c6ead3a54f-ed/s250x400/02a0c90b438231d47ec45c2a8c05d2365637300c.gifv)
+![butter over bread](https://64.media.tumblr.com/dc288ffae5676375834d0d0875a11f0b/5f6129c6ead3a54f-8d/s250x400/a6609a90d9853d843987b864f9ab08a80a4acda2.gifv)
+![oingo boingo](https://64.media.tumblr.com/93612348da8ea02817b6123d21395cf1/4ed22129fdd9c51a-fd/s250x400/9951068340e42f8b3375d5a7717eb59900bc51d3.gifv)
+![the smiths](https://64.media.tumblr.com/56b26c11b50582b4469fc55c88ea73ae/e80b2c130bb4958d-f9/s250x400/cc6701b95f2873de3f285e8430016ae072630005.gifv)
+
 
 
 
