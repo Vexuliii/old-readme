@@ -115,6 +115,8 @@ Before going into all the stuff, check out the stamps I've made!!
 
 ![turtle spin](https://64.media.tumblr.com/ec91ebad14a9e4aaa3a826c80b0b09a8/f24e2f09e6d27114-7b/s100x200/0e71b4d6ea2ad9ff4b6e85d59a4c589c362dcb14.gifv)
 
+![dr house lightning](https://64.media.tumblr.com/213154152c1baeb5339317fa3e61ced2/abc76547475361cd-71/s100x200/267c27b5b826f24c2cb25825cdd1b84851540cb6.gifv)
+
 
 ![p1 plush spin](https://64.media.tumblr.com/407f4a8ff8eca1d8387e59c1eff4c57e/804fdd89e55b13b8-7d/s100x200/af0709c9ae63fbd5e801401a30d56a43dcc9b203.gifv)
 ![p2 plush spin](https://64.media.tumblr.com/62af0860e065006cd1f7f9d18cd77aee/804fdd89e55b13b8-e3/s100x200/ad086112b10d0a28d68e4684de53c99b8ba85dc0.gifv)
