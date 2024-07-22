@@ -33,8 +33,10 @@ NOTE: Atabook is #back up!!!!! go leave a msg!!
 might take a minute to load in LOL</mark></summary>
 Currently 1,189 total! NOT DONE
 
-also the 1,189 isnt all added up thats how many are on my patreon rn... HJAJAS
-  
+also the 1,193 isnt all added up thats how many are on my patreon rn... HJAJAS
+<!---REMINDER TO DELETE FAILED FILES FROM PATREON--->  
+
+
 ![river 2 sea](https://64.media.tumblr.com/7b2d79090dde120f0df5316ba6e0061a/b19b8466f96477fc-4e/s100x200/649395e1418b013f9ccdf37934c22a36f7fd9f7b.webp)
 ![palestine](https://64.media.tumblr.com/805c9852166cc7b3bf9d6da788bcbb43/b19b8466f96477fc-bc/s100x200/43dbb6b5c4ab950217732ba95ba685b73971d262.pnj)
 ![all eyes on rafa](https://64.media.tumblr.com/2d8ff5940b35228243c2d9afa4600480/d25940931c67f948-12/s250x400/5aaad568b7ef31cc67539ecf3492bab5191d2699.gifv)
@@ -114,6 +116,10 @@ Before going into all the stuff, check out the stamps I've made!!
 ![turtle spin](https://64.media.tumblr.com/ec91ebad14a9e4aaa3a826c80b0b09a8/f24e2f09e6d27114-7b/s100x200/0e71b4d6ea2ad9ff4b6e85d59a4c589c362dcb14.gifv)
 
 
+![p1 plush spin](https://64.media.tumblr.com/407f4a8ff8eca1d8387e59c1eff4c57e/804fdd89e55b13b8-7d/s100x200/af0709c9ae63fbd5e801401a30d56a43dcc9b203.gifv)
+![p2 plush spin](https://64.media.tumblr.com/62af0860e065006cd1f7f9d18cd77aee/804fdd89e55b13b8-e3/s100x200/ad086112b10d0a28d68e4684de53c99b8ba85dc0.gifv)
+![p3 plush spin](https://64.media.tumblr.com/2e542752f5c0245565b7e992bcd807d6/804fdd89e55b13b8-50/s100x200/1d64bb49e47f10db7cc53064ac932fc90f8de279.gifv)
+![p4 plush spin](https://64.media.tumblr.com/8146a92d7b0f28622f23837fc9796137/b4ced78b179148dc-d8/s100x200/ccc60795d976167f9faa2cac32f593fcea299c78.gifv)
 ![dude beloved}](https://64.media.tumblr.com/e8cf7587a6c365e3042404d3907a9991/33b686b16177d887-5a/s100x200/c08dda42abc1b95663e3945d1140a34b84b8f707.gifv)
 ![p3 dance](https://64.media.tumblr.com/9205bd0c4d06c7cb60b61b9365e2dec5/33b686b16177d887-68/s100x200/8b49d86c604969b58419f291be5f8f802d526c56.gifv)
 ![p2 dance](https://64.media.tumblr.com/34fd24ed2aff6cc40ea46f1c336edb40/33b686b16177d887-b3/s100x200/70fdd73a1a50e857bcb8fc997cf1af4409bf06a4.gifv)
@@ -128,6 +134,9 @@ Before going into all the stuff, check out the stamps I've made!!
 ![p1 execution](https://64.media.tumblr.com/a4ff28bbe667a9d740d117e84de0161e/95e5ef3929c92c5e-77/s100x200/48c91e12bfe42b8d9d3c5c2e16147a93868143de.gifv)
 ![p1 flamethrower](https://64.media.tumblr.com/3b6c8a5f909230201a798bf79b9062f3/95e5ef3929c92c5e-4a/s100x200/cb2899a54d3ed7a5dac0ec8b72c228ddd31e3837.gifv)
 ![p1 dude](https://64.media.tumblr.com/def1c97b4fbdc961f95006b68446119f/95e5ef3929c92c5e-7d/s100x200/423f4171ffe5bb692b053e2c99f54e5f0949e7e9.gifv)
+![pbd fight 1](https://64.media.tumblr.com/fe55be68876e0908675d298ab53e0979/b4ced78b179148dc-ae/s100x200/0e8f5798f0138ef6445d13b85449646214748aba.gifv)
+![pbd fight 2](https://64.media.tumblr.com/fc6683cab0975194c6e6c3c1889184d0/b4ced78b179148dc-30/s100x200/68cd44571f4149171711a0a3d104fcced77e474c.gifv)
+
 
 Free to use!
 
