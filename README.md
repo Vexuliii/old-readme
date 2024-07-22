@@ -33,7 +33,7 @@ NOTE: Atabook is #back up!!!!! go leave a msg!!
 might take a minute to load in LOL</mark></summary>
 Currently 1,208 total! NOT DONE
 
-also the 1,193 isnt all added up thats how many are on my patreon rn... HJAJAS
+also the 1,220 isnt all added up thats how many are on my patreon rn... HJAJAS
 <!---REMINDER TO DELETE FAILED FILES FROM PATREON--->  
 
 
@@ -149,6 +149,20 @@ Before going into all the stuff, check out the stamps I've made!!
 ![p3 n champ](https://64.media.tumblr.com/896c329baadc21da0000a2045edefbac/58caeea50a22e7b5-98/s100x200/56a422bcb19aa270e399509ebdf77ef8319564f5.gifv)
 ![p3 think](https://64.media.tumblr.com/33d8606de7a78ec2b8fdfb2eb4a53168/58caeea50a22e7b5-ba/s100x200/b545027bc583a9bf9048808451f14c43817f2f38.gifv)
 ![p3 title](https://64.media.tumblr.com/33b531ee8271b9fbe24ff8be9c44d20b/58caeea50a22e7b5-b2/s100x200/4116554f5bc3874d207639e04ccc85d63535e88a.gifv)
+
+![danny smoke arbys](https://64.media.tumblr.com/ed8ac5f79f89e6ff35d85a14aab8df40/b4ced78b179148dc-08/s100x200/e3a6d1b37a57f35a8c4b584e812a51941e5e1b10.gifv)
+![marshall drunk](https://64.media.tumblr.com/da85d106bdb56ce31002a86685ae131f/b4ced78b179148dc-e7/s100x200/7184110e55e581b7e555ed7a7242d667bdae75b6.gifv)
+![marshall yell](https://64.media.tumblr.com/306b61ac8a048959f22f9366f977cb03/b4ced78b179148dc-ae/s100x200/6f9f6602777c52b20ea5e44af2b868d8ad986dee.gifv)
+![marshall spin](https://64.media.tumblr.com/e41464035f53c409826d49e642662618/b4ced78b179148dc-5a/s100x200/ce5498c2f26f4d6be80c6572c69762b5f28bed18.gifv)
+![marshall slide](https://64.media.tumblr.com/cac0e2ceb2b0d9a540717c9591e39331/b4ced78b179148dc-2c/s100x200/5452c5617c87e56e89c7e9cd0ab2530d02c0802c.gifv)
+
+![cake spin](https://64.media.tumblr.com/f5a1463dcda45121668fd116ed242773/b4ced78b179148dc-01/s100x200/fda4e2041fe86bff040ba48910a3b2a7ed24478e.gifv)
+![burrito spin](https://64.media.tumblr.com/b086d4ee2cb3c92abab072aa0c0a26ae/b4ced78b179148dc-a9/s100x200/76b38ec0df5bf651629277aab46442550bde786b.gifv)
+![samich spin](https://64.media.tumblr.com/828d3bb7f49a22d4afe22856f6a20a05/b4ced78b179148dc-25/s100x200/b01a66b59c200690df9a2c65a0dcf9f460580e7f.gifv)
+![chicken samich spin](https://64.media.tumblr.com/7f6571b13e929958f9281158d7695bba/b4ced78b179148dc-d3/s100x200/55e61d04c270f2c10b119b99c47562784deea049.gifv)
+![samich spin2](https://64.media.tumblr.com/11f64aa7d721f7d695721c2214dd8c9f/b4ced78b179148dc-41/s100x200/cb75d64d0513f04cd64a603130bd8db9864e948e.gifv)
+![samich spin 3](https://64.media.tumblr.com/8aaaa0bb7fe96c1c949eb691c96136fd/b4ced78b179148dc-ab/s100x200/23a9b7a986619f2ca3a9895e7992b0deda87d539.gifv)
+![burrito spin2](https://64.media.tumblr.com/7d60427db3a4783e7fe778e94ab31814/b4ced78b179148dc-56/s100x200/42f4455d21ea86afdfff22a5c9e0cb45eff6314f.gifv)
 
 
 Free to use!
