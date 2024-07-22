@@ -136,6 +136,19 @@ Before going into all the stuff, check out the stamps I've made!!
 ![p1 dude](https://64.media.tumblr.com/def1c97b4fbdc961f95006b68446119f/95e5ef3929c92c5e-7d/s100x200/423f4171ffe5bb692b053e2c99f54e5f0949e7e9.gifv)
 ![pbd fight 1](https://64.media.tumblr.com/fe55be68876e0908675d298ab53e0979/b4ced78b179148dc-ae/s100x200/0e8f5798f0138ef6445d13b85449646214748aba.gifv)
 ![pbd fight 2](https://64.media.tumblr.com/fc6683cab0975194c6e6c3c1889184d0/b4ced78b179148dc-30/s100x200/68cd44571f4149171711a0a3d104fcced77e474c.gifv)
+![the earth is hungry](https://64.media.tumblr.com/1b6b7bd37ecf07ccf0f32cc5239e8322/58caeea50a22e7b5-8b/s100x200/a45c051504ac141b1f141acc0233a6c812621e29.gifv)
+![p4 title](https://64.media.tumblr.com/107097e863ab09b82816ef262ce7f8b0/58caeea50a22e7b5-67/s100x200/f583ed2113d0eff6ee6b47d13573590264ea2ce3.gifv)
+![p4 talking](https://64.media.tumblr.com/265a3efc7ebba3b133edb8e61d7fa4b3/58caeea50a22e7b5-74/s100x200/e5e528239d5cf80508c2b1d39cdf407ee4015dcd.gifv)
+![p4 chomp](https://64.media.tumblr.com/f3f65a111251f1bf3c425186a1b9cf91/58caeea50a22e7b5-70/s100x200/2746aa3194ee3c35f6aca033d4ac44185f7c5d0e.gifv)
+![p4 run over](https://64.media.tumblr.com/fd241d97ca45c69903030b56c04fa27e/58caeea50a22e7b5-2a/s100x200/36a55807193c4762ff233edbfc862f7f867e379d.gifv)
+![p4 whack](https://64.media.tumblr.com/8fcc3d51e76f64d6ba29f8e1be2f91c2/58caeea50a22e7b5-1b/s100x200/4226aa17a83444eef9e32483caebdecb5eb49f2e.gifv)
+![p4 donut](https://64.media.tumblr.com/dda1937b21694497a0fdee04a3f89b56/58caeea50a22e7b5-f5/s100x200/76dbeef8112bc8093a8167a07bd6b737cb6285d0.gifv)
+![p4 cat](https://64.media.tumblr.com/be5c549183b3cd5abeb38f80450a9ac6/58caeea50a22e7b5-ff/s100x200/4641c1f81e137a24e67a0959e34769955f9ff2ed.gifv)
+![p3 jumpscare](https://64.media.tumblr.com/9f271610ee7a97661dd3fa53a2297515/58caeea50a22e7b5-47/s100x200/5e16054d8687bdc30d05ddf9c0aa12006e9dcd9b.gifv)
+![p3 wave](https://64.media.tumblr.com/7811ffc579e5959c81f0b2337532387b/58caeea50a22e7b5-e9/s100x200/fed6d954ca269f13f5f51d663479bb5d7d92cae8.gifv)
+![p3 n champ](https://64.media.tumblr.com/896c329baadc21da0000a2045edefbac/58caeea50a22e7b5-98/s100x200/56a422bcb19aa270e399509ebdf77ef8319564f5.gifv)
+![p3 think](https://64.media.tumblr.com/33d8606de7a78ec2b8fdfb2eb4a53168/58caeea50a22e7b5-ba/s100x200/b545027bc583a9bf9048808451f14c43817f2f38.gifv)
+![p3 title](https://64.media.tumblr.com/33b531ee8271b9fbe24ff8be9c44d20b/58caeea50a22e7b5-b2/s100x200/4116554f5bc3874d207639e04ccc85d63535e88a.gifv)
 
 
 Free to use!
