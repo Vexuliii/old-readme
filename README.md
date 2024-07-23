@@ -166,6 +166,19 @@ Before going into all the stuff, check out the stamps I've made!!
 ![samich spin 3](https://64.media.tumblr.com/8aaaa0bb7fe96c1c949eb691c96136fd/b4ced78b179148dc-ab/s100x200/23a9b7a986619f2ca3a9895e7992b0deda87d539.gifv)
 ![burrito spin2](https://64.media.tumblr.com/7d60427db3a4783e7fe778e94ab31814/b4ced78b179148dc-56/s100x200/42f4455d21ea86afdfff22a5c9e0cb45eff6314f.gifv)
 
+![tgc clap](https://64.media.tumblr.com/0dc1ddd34c44e62bbbedefe150506e93/68cbda47fa9982cc-6a/s100x200/91527fe5ef75d46eee523414bbbd68dbbb544a8a.gifv)
+![isaacwhy spin](https://64.media.tumblr.com/e5e8e991f7e4584b84a4032b420ef933/5170b6de5d10d853-ce/s100x200/01cb05807a90961590500e581b2f3efb4fe0940e.gifv)
+![softwilly no brain](https://64.media.tumblr.com/0be0281f94e56bf7a380f886d8617e5b/5170b6de5d10d853-e0/s100x200/bc6da3e66c334d8164c5d3ecbcf2ec73855bb548.gifv)
+![softwilly weird](https://64.media.tumblr.com/fdd84c0b5e5a44e181bb335a40d29168/5170b6de5d10d853-e9/s100x200/3c744883e49db04bbde2ed74557f0eb76c4dd0fa.gifv)
+![tanner groovy](https://64.media.tumblr.com/908f618205bcf14687760fd6794b2df6/5170b6de5d10d853-1d/s100x200/67d15f80184ef5b2218f276349fff23db89f202a.gifv)
+![yumi wallet](https://64.media.tumblr.com/e286a4d9375d744911219fe02a337fd6/5170b6de5d10d853-b1/s100x200/17ebabb0fe2a22237a7f521acddb45a10e3313de.gifv)
+![yumi clap](https://64.media.tumblr.com/75787ae6641193e76a0cf8326a25c84d/5170b6de5d10d853-95/s100x200/097d937a89bfef8cab852b6cb73d9b0fdb8c305a.gifv)
+![yumi freaky](https://64.media.tumblr.com/7a828788607fd22a94b6590cf02fcafd/5170b6de5d10d853-bf/s100x200/bd894d57b823b42e255971c2e80fd125f5fcd5cd.gifv)
+![larry groovy](https://64.media.tumblr.com/495898debae4350b73676e354a2d1d40/5170b6de5d10d853-a1/s100x200/95cc573bef935f28948ac6fed72d740b489e763d.gifv)
+![larry fall](https://64.media.tumblr.com/6d8231dc8155c4e336d9c0310494dc1b/5170b6de5d10d853-8f/s100x200/bec2f65f50998d042ff5db3e8d67a7f1e265d014.gifv)
+![grunk spin](https://64.media.tumblr.com/001599a241f9da8df3d435dc631caf34/68cbda47fa9982cc-78/s100x200/7d7d5e8d651f3d2b9a4289f844672cd8cd0d6e4e.gifv)
+![grunk cheer](https://64.media.tumblr.com/5d38a8e83b3443056a4937508fec46ec/68cbda47fa9982cc-b4/s100x200/a3d4f37eae65f5c0d1dd90435ae03fe3ea87a333.gifv)
+
 
 Free to use!
 
