@@ -31,9 +31,9 @@ NOTE: Atabook is #back up!!!!! go leave a msg!!
 <details>
 <summary><mark>Click to view everything!
 might take a minute to load in LOL</mark></summary>
-Currently 1,232 total! NOT DONE
+Currently 1,236 total! NOT DONE
 
-also the 1,232 isnt all added up thats how many are on my patreon rn... HJAJAS
+also the 1,236 isnt all added up thats how many are on my patreon rn... HJAJAS
 <!---REMINDER TO DELETE FAILED FILES FROM PATREON--->  
 
 
@@ -116,7 +116,10 @@ Before going into all the stuff, check out the stamps I've made!!
 ![turtle spin](https://64.media.tumblr.com/ec91ebad14a9e4aaa3a826c80b0b09a8/f24e2f09e6d27114-7b/s100x200/0e71b4d6ea2ad9ff4b6e85d59a4c589c362dcb14.gifv)
 
 ![dr house lightning](https://64.media.tumblr.com/213154152c1baeb5339317fa3e61ced2/abc76547475361cd-71/s100x200/267c27b5b826f24c2cb25825cdd1b84851540cb6.gifv)
-
+![he wants that cookie so effin bad](https://64.media.tumblr.com/4edc6000ec77ba5a593f17ddd8946b9f/69416f8808265100-51/s100x200/aa0d8331640bffe8d3394ef0ddfd55aebe882c7e.gifv)
+![hilson finger](https://64.media.tumblr.com/52e336e8864926a06df21a5701706639/69416f8808265100-19/s100x200/dc35843faa759723c6366171e5e5acce6bf575dd.gifv)
+![house dont care](https://64.media.tumblr.com/0eed9e1a9241b0100edc9fea5ca2d227/69416f8808265100-c7/s100x200/454b5d3734e58940e819ecf3132d8cdacbb7732e.gifv)
+![house fish eye](https://64.media.tumblr.com/eba2966f3dcf8948dd1cbaa161f1d23b/69416f8808265100-0a/s100x200/80b7d114dde4b2f20548d6510150b74c64e048e6.gifv)
 
 ![p1 plush spin](https://64.media.tumblr.com/407f4a8ff8eca1d8387e59c1eff4c57e/804fdd89e55b13b8-7d/s100x200/af0709c9ae63fbd5e801401a30d56a43dcc9b203.gifv)
 ![p2 plush spin](https://64.media.tumblr.com/62af0860e065006cd1f7f9d18cd77aee/804fdd89e55b13b8-e3/s100x200/ad086112b10d0a28d68e4684de53c99b8ba85dc0.gifv)
