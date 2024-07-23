@@ -31,9 +31,9 @@ NOTE: Atabook is #back up!!!!! go leave a msg!!
 <details>
 <summary><mark>Click to view everything!
 might take a minute to load in LOL</mark></summary>
-Currently 1,221 total! NOT DONE
+Currently 1,232 total! NOT DONE
 
-also the 1,220 isnt all added up thats how many are on my patreon rn... HJAJAS
+also the 1,232 isnt all added up thats how many are on my patreon rn... HJAJAS
 <!---REMINDER TO DELETE FAILED FILES FROM PATREON--->  
 
 
