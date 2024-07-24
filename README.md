@@ -1,5 +1,12 @@
 <!-- feel free to use this code btw, idm at all LOL. Wish you luck if you're trying to use it though...-->
 <div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=21&duration=3500&pause=700&color=F72A00&center=true&vCenter=true&width=435&lines=10%2F17%2F97+%3A;The+Earth+is+hungry.;Its+heart+throbs%2C;and+demands+cleansing;The+Earth+is+also+thirsty..." alt="Typing SVG" /></a>
+
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=21&duration=7500&pause=700&color=F72A00&center=true&vCenter=true&repeat=false&width=435&lines=-Postal+Dude%2C+1997" alt="Typing SVG" /></a>
+</div>
+<!--code above from https://readme-typing-svg.demolab.com/demo/ !!-->
+
+<div align="center">
   <img src="[](https://64.media.tumblr.com/a97856e38a3b8d8a06d99b10f8305770/db3003639f40a3b6-e6/s400x600/ec7ec4c76bef4ec37efaf79a7b8bc65391f6a951.pnj)"
 </div>
   
