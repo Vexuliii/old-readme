@@ -605,7 +605,22 @@ Now here are all the stamps I didn't make
 ![addiction 2 internet](https://plasticdino.neocities.org/blinkie/addicted.gif)
 ![blinkies rule](https://plasticdino.neocities.org/blinkie/blinkiesrule.gif)
 ![dw be happy](https://plasticdino.neocities.org/blinkie/dontworry.gif)
-
+![centipede](https://plasticdino.neocities.org/blinkie/centipede.gif)
+![blinkies take over](https://plasticdino.neocities.org/blinkie/blinkietakeovera.gif)
+![need need sleep](https://plasticdino.neocities.org/blinkie/blinky_01.gif)
+![painfully honest](https://plasticdino.neocities.org/blinkie/tumblr_44b92c7051154deb17807fd493592730_ca149a2d_250.gif)
+![beeing me](https://plasticdino.neocities.org/blinkie/tumblr_bd1f2bf9fe2e7e3c3cac2f9df2a1ebf9_eb8368bf_250.gif)
+![bee-otch](https://plasticdino.neocities.org/blinkie/tumblr_4df2129c0e908d5f7837582869d3ce1a_488e48b9_250.gif)
+![pacman](https://plasticdino.neocities.org/blinkie/pac.gif)
+![shut the fuck door](https://64.media.tumblr.com/5b40599f0bdd40cfd1c1a0b156f6d766/14e592dd205bb6b5-04/s400x600/21670701283d5ff5db14c2cd89a374f7fc2dd724.gifv)
+![hello 2003!](https://78.media.tumblr.com/6fed71d5483a44ab5fc93d712b2da416/tumblr_pcmwazJ1u61wiuymwo1_250.gif)
+![love sunflowers](https://66.media.tumblr.com/18721742dc0f5caa1a96026ddcbdd9c3/tumblr_pbmkj7ggnX1rxsp6io5_r1_250.gif)
+![alrighty then](https://koinuko.pink/mygraphics/blinkies/blinkie_alrightythen.gif)
+![blink and drive](https://koinuko.pink/mygraphics/blinkies/dontblink.gif)
+![lemon demon](https://koinuko.pink/mygraphics/blinkies/blinkie_lemondemon.gif)
+![blinkies for dummies](https://koinuko.pink/mygraphics/blinkies/blinkiesfordummies.gif)
+![ducks in a row](https://koinuko.pink/mygraphics/blinkies/shapeblinkie_ducksinarow.gif)
+!
 
 
 
