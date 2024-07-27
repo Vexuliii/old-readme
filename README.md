@@ -641,9 +641,39 @@ Now here are all the stamps I didn't make
 ![yellow squiggly](https://64.media.tumblr.com/5a7160d2babd1840e538c8ed81761866/e1dd9ee6069f3893-5c/s100x200/d4441b2e8b688759e3e0558154523111e0df3ec1.gifv)
 ![pixels over pencils](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/65c61b78-1886-4f6e-bf9d-c1e26cdde70a/dd6bzoy-0e18e91b-1c39-442e-9f3d-e0945fed33cd.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY1YzYxYjc4LTE4ODYtNGY2ZS1iZjlkLWMxZTI2Y2RkZTcwYVwvZGQ2YnpveS0wZTE4ZTkxYi0xYzM5LTQ0MmUtOWYzZC1lMDk0NWZlZDMzY2QuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.quIrpNbwVpjXySOBWTQIawjK3_GESm_g1QAvmyKKBkA)
 ![adhd](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dfrp0s2-33bbe4c2-1402-4a70-bcdf-199d45198fd3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZycDBzMi0zM2JiZTRjMi0xNDAyLTRhNzAtYmNkZi0xOTlkNDUxOThmZDMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.A3DlogngVabc2SEEGXER_yQI0o3OtWbe8OQpkK-VvnA)
-!
+![adhd swag](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dgatvkb-8fc47dac-77be-4b87-a9cb-b3817cc68dfa.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGdhdHZrYi04ZmM0N2RhYy03N2JlLTRiODctYTljYi1iMzgxN2NjNjhkZmEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.od-Cvz4FCrMFPuyLSl3OQFO6Ibjuc0U081NxQPCs5t4)
+![schizophrenic](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dffp9mi-6e2bbd12-ae39-4c55-88e4-e7854d8b5500.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZmcDltaS02ZTJiYmQxMi1hZTM5LTRjNTUtODhlNC1lNzg1NGQ4YjU1MDAuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.8N87-GP-K5IrT0jRN8N5DWXo26V3kzGCBcQmm8CbzEU)
+![hard of hearing](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dfsy1ce-dd376fe5-9462-43c4-8534-1c60e989bf09.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZzeTFjZS1kZDM3NmZlNS05NDYyLTQzYzQtODUzNC0xYzYwZTk4OWJmMDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-f2e4IfizQAV1D2F-TgwT1R_kbcXIERdFs7r8bEz8cM)
+![love my partners](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dfsxy6x-9ea6846d-412b-4c88-8c89-402473c4a6dd.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZzeHk2eC05ZWE2ODQ2ZC00MTJiLTRjODgtOGM4OS00MDI0NzNjNGE2ZGQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.cwSKBs8asm-SepAkZHcDf92Pfy8XXaoFEtERWh0_vog)
+![pasta beast](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dferf4o-9775571c-ba5a-4757-9b6e-ae603a70699e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZlcmY0by05Nzc1NTcxYy1iYTVhLTQ3NTctOWI2ZS1hZTYwM2E3MDY5OWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VSDGlYNmmPEWfMldNl-CYfAXkGtQ_AB0Pft_CPms5-4)
+![fuck ai art](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f1ec6942-07aa-496e-a525-951d9e32ee30/dgyhmdo-80f48ca5-a00b-4c56-acec-0a6ab5c5540d.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YxZWM2OTQyLTA3YWEtNDk2ZS1hNTI1LTk1MWQ5ZTMyZWUzMFwvZGd5aG1kby04MGY0OGNhNS1hMDBiLTRjNTYtYWNlYy0wYTZhYjVjNTU0MGQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.xn2qWdEsSg2URJbbpErXwFiguNbqeiStXU-D2sbW5cE)
+![? backrooms ?](https://64.media.tumblr.com/b83095ae15a4c0d24a26b13747b1cf90/4847426de439b171-f5/s250x400/fb851377e82b44dc9fca1b108607bb7b8c9c234f.gifv)
+![mac and cheesy!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dfz8wvw-9557528d-3cf2-4ee6-83ec-1282f3524728.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGZ6OHd2dy05NTU3NTI4ZC0zY2YyLTRlZTYtODNlYy0xMjgyZjM1MjQ3MjguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.kOvQVwQ7mYebmuTb_6PlppCfPDcifrL2NKEAkDiXyBo)
+<!--yellow buttons-->
+![free clipart](https://adriansblinkiecollection.neocities.org/buttons/b11.gif)
+![sleep rave repeat](https://adriansblinkiecollection.neocities.org/buttons/b7.gif)
+![amazing free stuff](https://y2k.neocities.org/buttons/amazing_free_stuff.gif)
+![n.k](https://plasticdino.neocities.org/buttons/nk2.gif)
+![olias shoutbox](https://cyber.dabamos.de/88x31/88_31_chatbox.gif)
+![micro button](https://cyber.dabamos.de/88x31/88x31-micro-button.gif)
+![atari](https://cyber.dabamos.de/88x31/atari-read.gif)
+![freeware arena](https://cyber.dabamos.de/88x31/arena.gif)
+![spanish pokemon](https://cyber.dabamos.de/88x31/bazarpokemon.gif)
+![under construction](https://cyber.dabamos.de/88x31/construction.gif)
+![directx dev](https://cyber.dabamos.de/88x31/directxnow.gif)
+![have a smile!](https://cyber.dabamos.de/88x31/hasmile.gif)
+![vegitarian jesus](https://cyber.dabamos.de/88x31/hsajesusveg.gif)
+![dont force img 2b lonely](https://cyber.dabamos.de/88x31/new-tab.gif)
+![national geographic](https://cyber.dabamos.de/88x31/ngs_88x31_logo.gif)
+![MEel](https://cyber.dabamos.de/88x31/niffnaff.gif)
+![send it to a friend](https://cyber.dabamos.de/88x31/sendit.gif)
+![theythem](https://cyber.dabamos.de/88x31/they-them.gif)
+![warning](https://cyber.dabamos.de/88x31/warning.gif)
+![flowers](https://64.media.tumblr.com/276399beed0bfa00111df661d8ffc0dc/4a155fc44f02bed1-b2/s100x200/e66e15453b01f56284b2cdb599806e10aa27a1a5.gifv)
+![fish](https://64.media.tumblr.com/a698e94d9ac47139c9c19238ebd4838d/4a155fc44f02bed1-6b/s100x200/e4cafab932a75778f6119fcbdc9402b5373f220c.gifv)
+![house](https://64.media.tumblr.com/958003c2e5e40b1c996b62a9467eb602/4a155fc44f02bed1-7c/s100x200/fdc5587cbf02a337a7f3f5c1e4bff0da487e7eb3.pnj)
 
-
+![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 
 
 
