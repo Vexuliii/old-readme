@@ -24,7 +24,7 @@
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
  <p align="center">
-NOTE: Carrd is slightly inaccurate! dw it is being remade! (note updated on 7/24)
+NOTE: Carrd is HASHTAG DONE!! go check it out! lmk if theres any spelling mistakes... (note updated on 7/29)
 <!--dont worry about the images its fine everythings fine-->
     
 <div align="center">
