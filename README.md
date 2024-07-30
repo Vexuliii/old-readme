@@ -24,7 +24,7 @@
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
  <p align="center">
-NOTE: Carrd is HASHTAG DONE!! go check it out! lmk if theres any spelling mistakes... (note updated on 7/29)
+NOTE: Strawpage is down for the time being!! Leave a msg in our atabook instead!! (note updated on 7/30)
 <!--dont worry about the images its fine everythings fine-->
     
 <div align="center">
