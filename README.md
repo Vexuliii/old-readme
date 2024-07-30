@@ -20,7 +20,7 @@
 <p align="center">
   <i><b>This Github page is for <mark>STAMPS</mark> ONLY!<b></i>
     <p align="center">
-  so please check out our carrd/patreon for information!
+  so please check out our carrd for information!
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
  <p align="center">
