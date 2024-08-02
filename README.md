@@ -24,7 +24,7 @@
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
  <p align="center">
-NOTE: Strawpage is down for the time being!! Leave a msg in our atabook instead!! (note updated on 7/30)
+NOTE: STRAWPAGE IS DONE AND BACK UP! GO CHECK IT OUT!! (note updated on 8/02)
 <!--dont worry about the images its fine everythings fine-->
     
 <div align="center">
