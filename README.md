@@ -32,7 +32,7 @@ before getting into everything please do <b>NOT</b> copy or color pick my skins!
 <div align="center">
   <img src="[divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)"
 </div>
-<!--this is coding gore and i deeply apologize-->
+
   
 ![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
 
