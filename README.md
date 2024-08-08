@@ -13,6 +13,8 @@ Last updated: 08/07/24
 </div>
   
 ![](https://komarev.com/ghpvc/?username=vexuliii&color=de1400&amp;label=View+Count+Haai+:33)
+
+HAPPY 2,000!
 <!-- (above) this is the view count! made by antonkomarev on github-->
 
 
