@@ -32,7 +32,7 @@ before getting into everything please do <b>NOT</b> copy or color pick my skins!
 Last FM hidden temporarily !!
 it'll be back eventually:3
 <!--- <a href="https://www.last.fm/user/Vexulii"><img src="https://lastfm-recently-played.vercel.app/api?user=Vexulii&footer_style=compact_stats&count=1&width=500&loved=true&header_style=none&bg_color=aa2222" alt=""></a>---/>
- <!---haha code stolen from static (check following) cause idk where tf they got ts from...---/>
+ <!---haha code stolen from static (check following) cause idk where tf they got ts from...--->
  
 <div align="center">
   <img src="[divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)"
