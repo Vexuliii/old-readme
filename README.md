@@ -47,7 +47,7 @@ before getting into everything please do <b>NOT</b> copy or color pick my skins!
       <p align="center">
   (also leave something in our atabook or draw us smth in our strawpage!! We love looking at stuff!! >_<)
  <p align="center">
-NOTE: Hashtag Last.FM is back up! sorry gang >_< (note updated on 8/11)
+NOTE: Accidently fucked up links... everything SHOULD be working HJASJA send me a whisp if they dont PLEASE!! (note updated on 8/12)
 <!--dont worry about the images its fine everythings fine-->
     
 <div align="center">
