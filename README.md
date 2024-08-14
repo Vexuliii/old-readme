@@ -19,6 +19,7 @@ HAPPY 2,000!
 
 
 [daily palestine click](https://arab.org/click-to-help/palestine/)
+
 [system info](https://costsystem.straw.page/)
 
 <div align="center">
