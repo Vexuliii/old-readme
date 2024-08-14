@@ -19,6 +19,7 @@ HAPPY 2,000!
 
 
 [daily palestine click](https://arab.org/click-to-help/palestine/)
+[system info](https://costsystem.straw.page/)
 
 <div align="center">
 before getting into everything please do <b>NOT</b> copy or color pick my skins!! Im watching you..
