@@ -1,5 +1,5 @@
 <div align="center">
-Last updated: 08/15/24
+Last updated: 08/16/24
 <!-- feel free to use this code btw, idm at all LOL. Wish you luck if you're trying to use it though...-->
 <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=21&duration=3500&pause=700&color=F72A00&center=true&vCenter=true&width=435&lines=10%2F17%2F97+%3A;The+Earth+is+hungry.;Its+heart+throbs%2C;and+demands+cleansing;The+Earth+is+also+thirsty..." alt="Typing SVG" /></a>
